@@ -1,1 +1,3 @@
-Игорь Шмагин В05 @igor_shmagin
+Шмагин Игорь В05 @igor_shmagin
+
+
